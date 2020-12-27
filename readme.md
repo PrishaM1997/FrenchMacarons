@@ -1,0 +1,1 @@
+A macaron or French macaroon is a sweet meringue-based confection made with egg white, icing sugar, granulated sugar, almond meal, and food colouring. The macaron is traditionally held to have been introduced in France by the Italian chef of queen Catherine de Medici during the Renaissance.
